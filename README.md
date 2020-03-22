@@ -6,7 +6,7 @@ Aplikasi map hack ini bukan sepenuhnya punya saya
 ©By Mayuf 
 
 Untuk pembayaran bisa chat admin 
-line.me/ti/p/~peb_pebri
+https://line.me/ti/p/~peb_pebri
 
 
 Thanks...
